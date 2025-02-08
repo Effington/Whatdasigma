@@ -3,4 +3,4 @@
 
 
 
-Read the links if you need more info <3
+Read the links if you need more info abt me <3
